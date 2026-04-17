@@ -5,8 +5,8 @@ Data Analyst skilled in Power BI, SQL, Python, and Excel with experience in dash
 
 📍 Greater Noida, India  
 📧 yadavvedansh2449@gmail.com 
-📞 +91 7017537549
 
+📞 +91 7017537549
 🔗 LinkedIn: https://www.linkedin.com/in/vedansh-yadav-b70169252?trk=contact-info
 
 ---
