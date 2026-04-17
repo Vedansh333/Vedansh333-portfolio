@@ -99,7 +99,8 @@ Accurate Institute of Management and Technology
 ---
 
 ## 📄 Resume
-https://drive.google.com/file/d/1sf6tmEQnF9Rg9-bP2eyG8zHCEGxk7bup/view?usp=drivesdk  
+https://drive.google.com/file/d/1AdRDd2aJrKJadzCU1ubkfUxFnJRxd7oc/view?usp=drivesdk
+
 
 ---
 
